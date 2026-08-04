@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/a/ch-0/","dg-note-properties":{}}
+{"dg-publish":true,"permalink":"/a/ch-0/","tags":["gardenEntry"],"dg-note-properties":{}}
 ---
 
 # 第一層(最頂層)
