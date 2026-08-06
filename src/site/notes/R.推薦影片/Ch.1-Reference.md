@@ -8,6 +8,7 @@
 [Cerse](https://www.youtube.com/@vipro8148)
 [圓某人和四某人](https://www.youtube.com/@OOOsomeone)
 [博弈論]([https://youtube.com/playlist?list=PL8GW4dJsaRTM67_6P_0lyqG1sxDpth7Sc&si=YHTbqKzXeVhQamXl](https://youtube.com/playlist?list=PL8GW4dJsaRTPUEqkJOSoGxnFlNd5LM-Kc&si=oHZ0ij-JY8eKwfeu))
+[木魚仔](https://www.youtube.com/@LOL333)
 
 [團練影片](https://youtube.com/playlist?list=PLAZNvvWl82mQ&si=sGuiOaftNe5D8iUT)
 
